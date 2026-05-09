@@ -1,6 +1,7 @@
-" ᴛʜᴇsᴇ sᴡᴇᴇᴛ ɪɴsᴛɪɴᴄᴛs ʀᴜɪɴ ᴍʏ ʟɪғᴇ. " <img width="37" height="17" alt="1000025041" src="https://github.com/user-attachments/assets/10c1ce81-b3a1-4e37-8fa8-76bafc4552fb" />
+" ᴛʜᴇsᴇ sᴡᴇᴇᴛ ɪɴsᴛɪɴᴄᴛs ʀᴜɪɴ ᴍʏ ʟɪғᴇ. "
 
-![1000025037](https://github.com/user-attachments/assets/a0f24df2-4fc6-45f6-a598-842b458dd131)
+<img width="735" height="504" alt="1000025037" src="https://github.com/user-attachments/assets/069a7aaa-6b6f-4e70-b1ea-6e578bc53c1f" />
+
 [ᴘʀᴏɴᴏᴜɴsᴘᴀɢᴇ](https://en.pronouns.page/@love.river)★[ᴍᴀɪɴ sᴘ](https://badappleee.straw.page)★[ᴘʀᴏɴᴏᴜɴs.ᴄᴄ](https://pronouns.cc/@stupidcupidxx)★[ᴀᴛᴀʙᴏᴏᴋ](https://lyradancer.atabook.org/)★[ᴘɪɴᴛᴇʀᴇsᴛ](https://pin.it/1IwHFGCdt)
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
@@ -22,8 +23,6 @@
 
 ︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
 
-<img width="99" height="56" alt="1000025040" src="https://github.com/user-attachments/assets/5c5d3e0d-8ee4-4e81-ac76-beda896da39f" />
-<img width="99" height="56" alt="1000025039" src="https://github.com/user-attachments/assets/6d9c7b77-e544-4804-b42c-924c7318c7cb" />
-
-
-<img width="540" height="288" alt="1000025038" src="https://github.com/user-attachments/assets/fcb809c8-5518-4bd5-9be0-3f2fc24e4af1" />
+<img width="99" height="56" alt="1000025040" src="https://github.com/user-attachments/assets/92aa5086-8c95-4412-b9b3-f9da900876d0" />
+<img width="99" height="56" alt="1000025039" src="https://github.com/user-attachments/assets/f78bee52-e3b1-4873-893c-a0f6f8f23309" />
+<img width="540" height="288" alt="1000025038" src="https://github.com/user-attachments/assets/8b0d144d-b076-4b27-9ccb-35fd51fe4467" />
