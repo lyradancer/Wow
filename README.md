@@ -1,5 +1,5 @@
 " ᴛʜᴇsᴇ sᴡᴇᴇᴛ ɪɴsᴛɪɴᴄᴛs ʀᴜɪɴ ᴍʏ ʟɪғᴇ. "
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&redirect=true)
 <img width="735" height="504" alt="1000025037" src="https://github.com/user-attachments/assets/069a7aaa-6b6f-4e70-b1ea-6e578bc53c1f" />
 
 [ᴘʀᴏɴᴏᴜɴsᴘᴀɢᴇ](https://en.pronouns.page/@love.river)★[ᴍᴀɪɴ sᴘ](https://badappleee.straw.page)★[ᴘʀᴏɴᴏᴜɴs.ᴄᴄ](https://pronouns.cc/@stupidcupidxx)★[ᴀᴛᴀʙᴏᴏᴋ](https://lyradancer.atabook.org/)★[ᴘɪɴᴛᴇʀᴇsᴛ](https://pin.it/1IwHFGCdt)
