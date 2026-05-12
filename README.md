@@ -1,28 +1,15 @@
-" ᴛʜᴇsᴇ sᴡᴇᴇᴛ ɪɴsᴛɪɴᴄᴛs ʀᴜɪɴ ᴍʏ ʟɪғᴇ. "
+" 𝑵𝒐 𝒎𝒂𝒕𝒕𝒆𝒓 𝒉𝒐𝒘 𝒎𝒂𝒏𝒚　𝒘𝒐𝒖𝒏𝒅𝒔　𝑰 𝒂𝒄𝒄𝒖𝒎𝒖𝒍𝒂𝒕𝒆, 𝒊𝒕’𝒔 𝒔𝒕𝒊𝒍𝒍　𝒏𝒐𝒕 𝒆𝒏𝒐𝒖𝒈𝒉　𝒏𝒐𝒕 𝒆𝒏𝒐𝒖𝒈𝒉. "
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&cover_image=true&theme=novatorem&show_offline=true&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=31io6pzcf2kzovdy3ldzrygdzpam&redirect=true)
-<img width="735" height="504" alt="1000025037" src="https://github.com/user-attachments/assets/069a7aaa-6b6f-4e70-b1ea-6e578bc53c1f" />
-
-[ᴘʀᴏɴᴏᴜɴsᴘᴀɢᴇ](https://en.pronouns.page/@love.river)★[ᴍᴀɪɴ sᴘ](https://badappleee.straw.page)★[ᴘʀᴏɴᴏᴜɴs.ᴄᴄ](https://pronouns.cc/@stupidcupidxx)★[ᴀᴛᴀʙᴏᴏᴋ](https://mattemattematte.atabook.org/)★[ᴘɪɴᴛᴇʀᴇsᴛ](https://pin.it/1IwHFGCdt)
-
-︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
-
-[ᴍʏ ʙʀᴏᴛʜᴇʀ ᴀɪᴅᴇɴ <3](https://github.com/KARSGOBOOM) <img width="20" height="20" alt="1000025044" src="https://github.com/user-attachments/assets/bcddc6ca-15fe-4de3-a228-c1ec735139dd" />
-
-[ᴍʏ ʙʀᴏᴛʜᴇʀ ᴅᴇx <3](https://github.com/dexpilled) <img width="20" height="20" alt="1000025043" src="https://github.com/user-attachments/assets/ee7ff667-98d4-4a20-bc3c-38c4f5676319" />
-
-[ᴍʏ ᴡɪғᴇ ɪʟʏ ɪʟʏ ɪʟʏ ɪʟʏ ɪʟʏsᴍᴍᴍᴍᴍ!!!!!! <3 <3 <3](https://github.com/L0ST-UMBRELLA) ![1000025042](https://github.com/user-attachments/assets/c5b8c3c2-495b-495d-95f5-7a591e1c7a00)
+![1000025212](https://github.com/user-attachments/assets/f4d30257-9ba9-4376-8732-bfd3149c50b0)
 
 
-[ᴅɪɴᴏᴏᴏ ᴅɪɴᴏᴏᴏᴏ!!!!!!!!!!!!](https://github.com/tunafishyy) <img width="20" height="20" alt="1000025046" src="https://github.com/user-attachments/assets/6ceea29e-a47c-480c-b879-bc789ceff849" />
+[𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬𝐩𝐚𝐠𝐞](https://en.pronouns.page/@vampflower)★[𝐦𝐚𝐢𝐧 𝐬𝐭𝐫𝐚𝐰𝐩𝐚𝐠𝐞](https://badappleee.straw.page)★[𝐩𝐫𝐨𝐧𝐨𝐮𝐧𝐬.𝐜𝐜](https://pronouns.cc/@stupidcupidxx)★[𝐚𝐭𝐚𝐛𝐨𝐨𝐤](https://mattemattematte.atabook.org/)★[𝐩𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭](https://pin.it/1IwHFGCdt)
 
+![1000025215](https://github.com/user-attachments/assets/ea8965e8-b5f6-4b51-98a7-993591790389)
 
-[ʏᴏᴋᴜ !](https://github.com/yokumallow) <img width="20" height="20" alt="1000025047" src="https://github.com/user-attachments/assets/976090f3-b222-451e-8ad1-3225d1c9b903" />
+𝐝𝐧𝐢 𝐥𝐢𝐬𝐭 ∥ 𝐡𝐨𝐦𝐨𝐩𝐡𝐨𝐛𝐞𝐬, 𝐭𝐫𝐚𝐧𝐩𝐡𝐨𝐛𝐞𝐬, 𝐫𝐚𝐜𝐢𝐬𝐭𝐬, 𝐮𝐧𝐝𝐞𝐫 11, 𝐨𝐯𝐞𝐫 18, 𝐳𝐨𝐨𝐩𝐡𝐢𝐥𝐞𝐬, 𝐧𝐚𝐳𝐢𝐬, 𝐭𝐫𝐮𝐦𝐩 𝐬𝐮𝐩𝐩𝐨𝐫𝐭𝐞𝐫𝐬, 𝐦𝐚𝐠𝐚, 𝐚𝐧𝐭𝐢 𝐟𝐮𝐫𝐫𝐲/𝐭𝐡𝐞𝐫𝐢𝐚𝐧𝐬, 𝐣𝐮𝐬𝐭 𝐨𝐯𝐞𝐫𝐚𝐥𝐥 𝐩𝐫𝐨𝐛𝐥𝐞𝐦𝐚𝐭𝐢𝐜 𝐩𝐞𝐨𝐩𝐥𝐞 𝐡𝐨𝐧𝐞𝐬𝐭𝐥𝐲
 
+𝐟𝐚𝐧𝐝𝐨𝐦𝐬/𝐢𝐧𝐭𝐞𝐫𝐞𝐬𝐭𝐬 ∥ 𝐩𝐫𝐨𝐣𝐞𝐜𝐭 𝐬𝐞𝐤𝐚𝐢, 𝐯𝐨𝐜𝐚𝐥𝐨𝐢𝐝, 𝐥𝐮𝐜𝐤𝐲 𝐬𝐭𝐚𝐫, 𝐦𝐚𝐝𝐨𝐤𝐚 𝐦𝐚𝐠𝐢𝐜𝐚, 𝐩𝐨𝐤𝐞𝐦𝐨𝐧, 𝐚𝐥𝐢𝐞𝐧 𝐬𝐭𝐚𝐠𝐞, 𝐦𝐲 𝐥𝐢𝐭𝐭𝐥𝐞 𝐩𝐨𝐧𝐲
 
-[ᴋᴀᴛsᴜsᴜsᴜsᴜsᴜ](https://github.com/kizuna-akari) <img width="20" height="20" alt="1000025045" src="https://github.com/user-attachments/assets/b318c90c-6a18-4362-8ba7-c875c8a75ab6" />
-
-︶ ⏝ ︶ ୨୧ ︶ ⏝ ︶
-
-<img width="99" height="56" alt="1000025040" src="https://github.com/user-attachments/assets/92aa5086-8c95-4412-b9b3-f9da900876d0" />
-<img width="99" height="56" alt="1000025039" src="https://github.com/user-attachments/assets/f78bee52-e3b1-4873-893c-a0f6f8f23309" />
-<img width="540" height="288" alt="1000025038" src="https://github.com/user-attachments/assets/8b0d144d-b076-4b27-9ccb-35fd51fe4467" />
+![1000025176](https://github.com/user-attachments/assets/11d3c7ef-8369-42b2-805a-ecc11a3292e4)
+![1000025175](https://github.com/user-attachments/assets/4f881cc6-8a10-490e-b3b2-15e0d5602854)
